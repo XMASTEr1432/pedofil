@@ -1,1 +1,1 @@
-# pedofil
+# Informatyka
